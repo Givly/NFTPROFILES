@@ -1,4 +1,4 @@
-# NFT PROFILE PICTURE
+# NFT PROFILES PICTURES
 
 - 0cgivly (1).jpg
 - 0cgivly (2).jpg
